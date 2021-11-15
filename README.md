@@ -4,5 +4,5 @@ https://github.com/abdullahalmahmood </br>
 https://twitter.com/AbdAlMahmood01 </br>
 https://www.youtube.com/c/AbdullahAlMahmood/ </br>
 www.linkedin.com/in/abdullah-al-mahmood </br>
-ww.pinterest.com/abdullah_al_mahmood </br>
+www.pinterest.com/abdullah_al_mahmood </br>
 https://abdullahalmahmood.tumblr.com
